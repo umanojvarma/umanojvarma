@@ -57,10 +57,11 @@ I believe **products are stories in motion** — and I'm here to write chapters 
 ---
 
 ### ✨ A Few Fun Facts
-- 🥘 Ran a food stall during COVID — called it an MVP, literally!  
-- 📖 Penning Telugu nostalgia stories, one memory at a time  
-- 🎧 Dreaming of a podcast that blends folk tales, product truths, and soul-searching reflections  
-- 🎨 Deeply inclined toward the arts — because creativity is the engine of empathy  
+- 🛻 Ran a food outlet in a drive-in, pre-COVID, to understand how business models work at the grassroots  
+- 🎨 Partnered with a digital marketing firm during COVID as Creative Director — helped shape visual storytelling for startup brands  
+- 🎥 Wrote, acted, and created ad content for an early-stage water brand (Miljo Aqua), which drove real dealer engagement  
+- 🎭 Passionate about acting — appeared in short indie films and produced a couple of music albums just to stay creatively alive  
+- 💡 Firm believer that the best product thinking is born where ground experience meets creative experimentation  
 
 ---
 
