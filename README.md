@@ -2,7 +2,7 @@
 
 # 👋 Hello there! I'm Manoj Varma
 
-🎯 **Senior Product Manager** | FinTech & Payroll Innovator | Creative Thinker  
+🎯 **Senior Product Manager** | AI, FinTech & Payroll Innovator | Creative Thinker  
 📍 Hyderabad, India | 🌐 Building bridges between people, platforms, and possibilities
 
 ---
